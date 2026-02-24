@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tiesetso
-- 👀 I’m interested in IT, Gaming, Soccer and flims
+- 👀 I’m interested in IT, Editing, Gaming, Soccer and flims
 - 🌱 I’m currently learning system develpment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tiiestso.mataitsane@gmail.com
